@@ -1,1 +1,1 @@
-aula 02
+aula 02 hoje é dia 07/07/25
